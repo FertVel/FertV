@@ -1,2 +1,3 @@
 # FertV
-Me considero una persona introvertida que le gusta hacer actividades tranquilas en espacios abiertos y estar con mis amigos.
+Mi nombre es Fer. Me gusta leer, escuchar música y ver series.
+También me gusta el voleibol y programar.
